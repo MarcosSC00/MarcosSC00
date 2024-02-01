@@ -22,8 +22,6 @@
 
 ##
 
-#### Gosto de desafios e de aprender algo novo todo dia 📚
-
 ##
 
 #### Entre em contato comigo 🙋
